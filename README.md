@@ -14,8 +14,11 @@ Views do increase right now.<br>
 "Will youtube nerf it soon?" is the main question.<br>
 <br>
 <br>
-#### Update - views has increased by over 800.
+#### Update - youtube nerfed it.
+Anyways, views did increase by (1/4)th the total times run by the script.
+Worth it? No.
+Fun? Yes!
 Before the script - 53 views<br>
 One night of script - 833 views<br>
-The video which is affected by this script - https://www.youtube.com/watch?v=Gw0eMcND2aw
-<br>
+Views after YouTube nerfed it - 252 views<br>
+The video which is affected by this script - https://www.youtube.com/watch?v=Gw0eMcND2aw<br>
