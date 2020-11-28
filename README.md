@@ -15,6 +15,7 @@ Views do increase right now.<br>
 <br>
 <br>
 #### Update - views has increased by over 750.
-Before the scritp - 53 views
-One night of script - 833 views
+Before the script - 53 views<br>
+One night of script - 833 views<br>
 The video which is affected by this script - https://www.youtube.com/watch?v=Gw0eMcND2aw
+<br>
